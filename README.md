@@ -1,1 +1,1 @@
-Hello everyone hoe y'all doing.
+Hello everyone how y'all doing.
